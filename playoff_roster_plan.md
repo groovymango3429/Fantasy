@@ -22,7 +22,7 @@
 
 ### Divisional Round (January 18-19, 2025)
 **AFC:**
-- (6) Steelers @ (1) Chiefs - Predicted Winner: Chiefs
+- (4) Texans @ (1) Chiefs - Predicted Winner: Chiefs
 - (3) Ravens @ (2) Bills - Predicted Winner: Ravens
 
 **NFC:**
